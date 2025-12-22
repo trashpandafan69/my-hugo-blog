@@ -23,7 +23,6 @@ Hi, this is trashpandafan69.
 - Social hierarchy
 - Doing dishes
 - LinkedIn
-- 
 
 ## What I'm working on
 
@@ -32,3 +31,8 @@ Hi, this is trashpandafan69.
 - Limiting my screen time
 - My mental and physical health
 - Figuring out who I am and what I really want
+
+## Social Media
+
+- [letterboxd](https://letterboxd.com/trashpandafan69/)
+- [rateyourmusic](https://rateyourmusic.com/~trashpandafan69)
