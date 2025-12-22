@@ -74,7 +74,7 @@ pagination.pagerSize = 5
 [languages]
   [languages.en]
     languageName = "English"
-    title = "trashpanda's blog"
+    title = "trashpandafan69's blog"
 
     [languages.en.params]
       subtitle = "A simple, retro theme for Hugo"
@@ -92,7 +92,7 @@ pagination.pagerSize = 5
       words = "words"
 
       [languages.en.params.logo]
-        logoText = "trashpanda's blog"
+        logoText = "trashpandafan69's blog"
         logoHomeLink = "/"
 
       [languages.en.menu]
