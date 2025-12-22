@@ -4,11 +4,12 @@ draft = false
 title = 'About'
 +++
 
-Hi, this is trashpandafan69.
+Welcome to the 25-year-old thinker's blog.
 
 ## Things I like
 
-- Pop/electronic/rock/hip-hop/R&B music
+- Thinking
+- Music
 - Raccoon
 - Drawing digital art
 - Trauma dumping on the first date
@@ -30,7 +31,7 @@ Hi, this is trashpandafan69.
 - English (still working on it after knowing it for 10+ years)
 - Limiting my screen time
 - My mental and physical health
-- Figuring out who I am and what I really want
+- Figuring out who I am and my purpose on this world
 
 ## Social Media
 
