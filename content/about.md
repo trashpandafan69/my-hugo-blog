@@ -11,10 +11,7 @@ Welcome to the 25-year-old thinker's blog.
 - Thinking
 - Music
 - Raccoon
-- Drawing digital art
-- Trauma dumping on the first date
-- Short hair
-- Internet
+- Drawing
 - Narrative-driven RPG games
 - Programming
 
@@ -29,11 +26,5 @@ Welcome to the 25-year-old thinker's blog.
 
 - French (A1 level -> B2 level)
 - English (still working on it after knowing it for 10+ years)
-- Limiting my screen time
 - My mental and physical health
 - Figuring out who I am and my purpose on this world
-
-## Social Media
-
-- [letterboxd](https://letterboxd.com/trashpandafan69/)
-- [rateyourmusic](https://rateyourmusic.com/~trashpandafan69)
