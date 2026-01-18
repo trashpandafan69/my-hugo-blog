@@ -21,7 +21,7 @@ This makes me realize that cis people experience gender dysphoria all the time: 
 
 Same goes for cis men, for which the workout/looksmaxxing culture has become popular among the red-pilled community, cause if you don’t have a distinctive jawline you fail miserably at being a man, since the whole purpose of your life is to be perceived and accepted by your hommies as a manly man, and to play the role of what is considered to be a "man" in a heteronormative society.
 
-Body modifications such as plastic surgery and workout/looksmaxxing are like HRT for cis women and men.
+Body modifications such as plastic surgery and workout/looksmaxxing are like HRT and top/bottom surgery for cis women and men.
 
 RuPaul said “we are born naked, and the rest is drag”. This beautiful quote strikes me in so many ways. No matter cis or trans, we are always taught to perform our gender to some extent to enforce the existing social construct. I wish one day we could all realize that we are not that different.
 
