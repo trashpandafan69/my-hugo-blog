@@ -19,7 +19,7 @@ Problem with this method is that this cis woman has a traditionally feminine fac
 
 This makes me realize that cis people experience gender dysphoria all the time: that’s why plastic surgery is so popular among cis women, cause only having a traditionally feminine face is being perceived as a real woman. Also notice that a “traditionally feminine face” usually means a face of a cis woman of European descent, so when right wing people are trying to insult Michelle Obama, they usually use conspiracy theories such as she is a trans woman and was born as a man, because she does not fit the Eurocentric beauty standards for woman (Yes, race and gender always come hand in hand and I’ll die on this hill).
 
-Same goes for cis men, for which the workout/looksmaxxing culture has become popular among the red-pilled community, cause if you don’t have a distinctive jawline you fail miserably at being a man, since the whole purpose of your life is to be perceived and accepted by your hommies as a manly man, and to play the role of what is considered to be a "man" in a heteronormative society.
+Same goes for cis men, for which the workout/looksmaxxing culture has become popular among the red-pilled community, cause if you don’t have a distinctive jawline you will fail miserably at being a man, since the whole purpose of your life is to be perceived and accepted by your hommies as a real man, and to play the role of what is considered to be a "functional man" in a heteronormative society.
 
 Body modifications such as plastic surgery and workout/looksmaxxing are like HRT and top/bottom surgery for cis women and men.
 
