@@ -9,7 +9,7 @@ tags = ["english", "gender"]
 keywords = ["", ""]
 description = "We are born naked, and the rest is drag."
 showFullContent = false
-readingTime = false
+readingTime = true
 hideComments = false
 +++
 
