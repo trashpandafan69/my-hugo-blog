@@ -23,7 +23,7 @@ Same goes for cis men, for which the workout/looksmaxxing culture has become ext
 
 Body modifications such as plastic surgery and workout/looksmaxxing are like HRT and gender-affirming surgery for cis women and men.
 
-RuPaul said “we are born naked, and the rest is drag”. This beautiful quote strikes me in so many ways. No matter cis or trans, we are always taught to perform our gender to some extent to enforce the existing social construct. I wish one day we could all realize that we are not that different.
+RuPaul said “we are born naked, and the rest is drag”. This beautiful quote strikes me in so many ways. No matter if you identify as cis or trans, we are always taught to perform our gender to some extent to enforce the existing social construct.
 
 References:
 
